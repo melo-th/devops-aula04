@@ -6,8 +6,8 @@ Aula 04 Impacta
 Três filmes favoritos:
 
 • Interestelar
-• Gravidade
+• Brilho Eterno de uma mente sem lembranças (Nome alterado)
 • Inside
-
+• Gravidade
 
 ---
